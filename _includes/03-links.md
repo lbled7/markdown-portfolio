@@ -1,1 +1,1 @@
-[GitHub_Profile](https://github.com/lbled7)
+[GitHub Profile](https://github.com/lbled7)
